@@ -32,3 +32,10 @@ Overall, my portfolio is a space that blends who I am with what I do — a work 
 
 #OUTPUT#:
 
+![Image](https://github.com/user-attachments/assets/651ed311-471e-496b-882f-16279d808895)
+![Image](https://github.com/user-attachments/assets/3bc958ed-6547-4cc8-8604-204228f0932a)
+![Image](https://github.com/user-attachments/assets/4d49b001-36f8-4a09-abe5-11be2d5f0f93)
+![Image](https://github.com/user-attachments/assets/a4578768-48ac-4411-917b-8294cd2fba38)
+![Image](https://github.com/user-attachments/assets/bbbf48e3-fd2c-45d7-8664-49ef04b52c91)
+![Image](https://github.com/user-attachments/assets/07a0b7e5-6438-46f4-9602-29b819ad30bc)
+
